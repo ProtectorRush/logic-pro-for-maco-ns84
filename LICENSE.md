@@ -1,4 +1,4 @@
-
+Logic Pro for macOS automatic Transition: text-animation & slow-motion is the best Logic Pro for macOS transition, featuring text-animation and slow-motion. Safe, efficient, and
 
 
 
